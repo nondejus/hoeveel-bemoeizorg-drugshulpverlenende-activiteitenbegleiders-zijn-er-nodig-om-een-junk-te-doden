@@ -1,1 +1,1 @@
-# hoeveel-bemoeizorg-drugshulpverleners-activiteitenbegleiders-zijn-er-nodig-om-een-junk-te-doden
+# hoeveel-bemoeizorg-drugshulpverlenende-activiteitenbegleiders-zijn-er-nodig-om-een-junk-te-doden
